@@ -1,6 +1,6 @@
-- 👋 Hi, I’m  Daphne a dutch 18 year old progammer!
+- 👋 Hi, I’m  Daphne a dutch 19 year old progammer!
 - 👀 I’m interested in Art, reading and progamming!
-- 📫 How to reach me email: DaphnePaterek@gmail.com Dc: ossje#4343
+- 📫 How to reach me email: DaphnePaterek@gmail.com Dc: ossje
 
 <!---
 12Daphne/12Daphne is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
