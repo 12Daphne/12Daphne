@@ -1,3 +1,3 @@
-- 👋 Hi, I’m  Daphne a dutch 20 year old progammer!
+- 👋 Hi, I’m  Daphne a dutch 21 year old progammer!
 - 👀 I’m interested in Art, reading and progamming!
 - 📫 How to reach me email: DaphnePaterek@gmail.com Dc: ossje
